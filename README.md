@@ -1,2 +1,2 @@
 # Makemebrilliant
-To enhance our brilliance is to give ourselves gifts of love
+To enhance our brilliance is to gift ourselves pockets of love
